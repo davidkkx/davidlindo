@@ -11,4 +11,6 @@ david.rainet.marques@escola.pr.gov.br
 
 @lindão
 
-![](htts://media.tenor.com/EibW8F4VJUkAAAAC/joke-jk.gif)
+![](https://media.tenor.com/mQFpGnafiCcAAAAM/monday.gif)
+
+
